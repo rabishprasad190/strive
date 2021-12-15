@@ -1,4 +1,4 @@
 # strive
 
-WELCOME ALL
+WELCOME ALL;
 LET'S WRAP UP THIS YEAR🤩🔥
